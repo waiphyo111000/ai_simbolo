@@ -1,1 +1,1 @@
-# ai_simbolo
+# I am a ai_simbolo's student.
